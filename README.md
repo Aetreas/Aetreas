@@ -2,4 +2,4 @@
 - 👀 I’m interested in: Game Development
 - 🌱 I’m currently learning: (See Above)
 - 💞️ I’m looking to collaborate on: Nothing, at the moment.
-- 📫 How to reach me: The easiest way to reach me at current is via Discord @ Antho#0517
+- 📫 How to reach me: The easiest way to reach me at current is via Discord @ Aetreas
